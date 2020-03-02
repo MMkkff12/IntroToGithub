@@ -10,6 +10,8 @@ Motivation:
   
   My goal here is to motivate you and have you feel like this career shift is possible for you. Through hard work and definitive purpose it 
   is possible. 
+
+  I would like to have a career that I enjoy and fulfills me so I find promise everyday in getting up and going to work.
   
   
   
